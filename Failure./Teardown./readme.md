@@ -1,0 +1,2 @@
+- [Dead At 30K Miles!? Mazda Skyactiv-G 2.5 CX30 Core / Blown Engine Teardown](https://youtu.be/72q69lb3njo)
+- [Mazda Skyactiv 2.0L EXTREME ENGINE DISASSEMBLY! How Do You Do THIS MUCH Damage with 146hp!?](https://youtu.be/W7zhYGh_srE)
